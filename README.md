@@ -6,6 +6,8 @@
 2. Keep loving *Cats* and *coding*
 3. Keep writing the note for each task
 
+**Here is the link for my stats 220 note**
+* [Stats 220](https://docs.google.com/document/d/1GwJEwfGBvyhAtBJIX70KAfZ6yfKeWmYZUUofjBboBFE/edit?usp=sharing)
 
 **And a link for my favourite cat meme**
 * [Cat meme](https://media.tenor.com/mJ_Og97j5WwAAAAM/chipi-chapa.gif).
