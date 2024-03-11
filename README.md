@@ -11,3 +11,5 @@
 
 **And a link for my favourite cat meme**
 * [Cat meme](https://media.tenor.com/mJ_Og97j5WwAAAAM/chipi-chapa.gif).
+
+  ![image](https://github.com/CharlotteW0223/CharlotteW0223/blob/main/profilereadme.jpg)
